@@ -7,7 +7,7 @@
 </head>
 <body>
 
-<a href="https://trendbet6530.com/“ title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/pCetZyqYj4cP.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<img src="https://r.resimlink.com/pCetZyqYj4cP.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
 <a href="https://trendbet6530.com">
     <img src="https://r.resimlink.com/pCetZyqYj4cP.jpg" />
 </a>
