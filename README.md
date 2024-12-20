@@ -1,6 +1,6 @@
-#  <a href="https://m-1358bets10.com.com/">Bets10.com</a>
+#  <a href="https://m-1358bets10.com/">Bets10.com</a>
 
-#  <a href="https://m-1358bets10.com.com/">GİRİŞ İÇİN TIKLAYINIZ</a>
+#  <a href="https://m-1358bets10.com/">GİRİŞ İÇİN TIKLAYINIZ</a>
 
 <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
