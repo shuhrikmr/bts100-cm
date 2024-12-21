@@ -7,7 +7,7 @@
 </head>
 <body>
 
-<a href="https://m-1389bets10.com">
+<a href="https://ensaglambonus.click">
     <img src="https://r.resimlink.com/pCetZyqYj4cP.jpg" />
 </a>
 </a>
