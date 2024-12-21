@@ -1,13 +1,13 @@
-#  <a href="https://m-1356bets10.com/">Bets10.com</a>
+#  <a href="https://m-1389bets10.com/">Bets10.com</a>
 
-#  <a href="https://m-1356bets10.com/">GİRİŞ İÇİN TIKLAYINIZ</a>
+#  <a href="https://m-1389bets10.com/">GİRİŞ İÇİN TIKLAYINIZ</a>
 
 <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
 <body>
 
-<a href="https://m-1356bets10.com">
+<a href="https://m-1389bets10.com">
     <img src="https://r.resimlink.com/pCetZyqYj4cP.jpg" />
 </a>
 </a>
